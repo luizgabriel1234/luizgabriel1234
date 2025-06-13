@@ -1,6 +1,6 @@
 # ola eu sou  luiz gabriel !🐯
 
-- Estudante do primeiro ano B ensino medio 
+- Estudante do primeiro ano B do ensino medio 
 - Colegio professores edevaudo e maria janete
 - Turvo-pr
 
